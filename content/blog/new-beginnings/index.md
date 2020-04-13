@@ -42,4 +42,5 @@ COVID-19 may include these symptoms:
 > All we can do is to maintain social distancing, physical meet ups so that we can break the chain.
 
 > STAY HOME. STAY LIVES.
+
 > <img src="https://www.sbam.org/portals/0/5_1.png">
