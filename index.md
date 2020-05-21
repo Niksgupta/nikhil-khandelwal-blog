@@ -17,3 +17,6 @@ On 30 January 2020, following the recommendations of the Emergency Committee, th
 ## Statements from Global research centres across the world
 
 WHO is gathering the latest scientific findings and knowledge (primarily journal articles) on coronavirus disease (COVID-19) and compiling it in a database. We update the database daily from searches of bibliographic databases, hand searches of the table of contents of relevant journals, and the addition of other relevant scientific articles that come to our attention. The entries in the database may not be exhaustive and new research will be added regularly.
+
+
+nikhil khandelwal is a mad man
